@@ -1,1 +1,1 @@
-https://github.com/abdullol/abdullol/issues/1#issue-679778845
+![](https://media1.giphy.com/media/l41YcLtmnhYyUlbfq/giphy.gif)
